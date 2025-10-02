@@ -1,1 +1,2 @@
-# i-reincarnated-as-the-crazed-heir
+# I Reincarnated as the Crazed Heir
+Ancien maître d'arts martiaux en pleine ascension, Jagak Yang est connu sous le nom de Ten Strike Finisher, car il est capable de vaincre n'importe quel adversaire en l'espace de dix coups. Jagak est également le fils du chef de la Grande Alliance Martiale, une organisation de sectes d'arts martiaux vertueux. Son futur leadership sur le monde des arts martiaux semble assuré, jusqu'à ce qu'il soit assassiné par des rivaux jaloux ! Jagak se réincarne alors dans le corps de Cheonso Ma, le playboy commandant en second de la maléfique secte Shining Light. Jagak peut-il rester fidèle à ses principes malgré sa nouvelle vie du côté obscur ?
